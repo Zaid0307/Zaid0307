@@ -1,5 +1,5 @@
 
-<img src="(https://github.com/Zaid0307/Zaid0307/blob/main/Github.jpg](https://github.com/Zaid0307/Zaid0307/blob/main/Linkedin1.png)"
+<img src="https://github.com/Zaid0307/Zaid0307/blob/main/Github.jpg](https://github.com/Zaid0307/Zaid0307/blob/main/Linkedin1.png"
      alt="Banner">
 
 
