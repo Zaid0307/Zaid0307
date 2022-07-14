@@ -1,4 +1,4 @@
-### Hi there 👋 i´, Zaid,
+### Hi there 👋 i am Zaid,
 
 [Check out my Linkedin Profile](https://www.linkedin.com/in/zaidlonne/)
 
