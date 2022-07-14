@@ -1,3 +1,5 @@
+
+[Banner](https://github.com/Zaid0307/Zaid0307/blob/main/Github.jpg)
 ### Hi there 👋, i´m Zaid,
 
 [Check out my Linkedin Profile](https://www.linkedin.com/in/zaidlonne/)
